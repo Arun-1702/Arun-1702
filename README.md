@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Arun-1702
-- 👀 I’m interested in ... coding, 0laying cricket
+- 👀 I’m interested in ... coding, playing cricket
 - 🌱 I’m currently compledted my graduation
 - 📫 How to reach me ... arungowdaarun1396@gmail.com, 
 - 😄 Pronouns: ...he/him
